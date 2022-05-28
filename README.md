@@ -1,0 +1,2 @@
+# virezlica
+nahozdenieivirezlica iz fotografii 
